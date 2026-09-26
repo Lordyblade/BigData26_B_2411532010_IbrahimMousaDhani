@@ -9,5 +9,5 @@ https://drive.google.com/drive/folders/1FDyBekDPu7Y3IsrO7JQgxzntSBR3dH_T?usp=sha
 Link Google Drive Praktikum 2
 https://drive.google.com/drive/folders/1yGZ3u6rSy-X4xuc6y3X-t1SLxklZXqMg?usp=sharing
 
-Link Google Drive Praktikum 
+Link Google Drive Praktikum 3 
 https://drive.google.com/drive/folders/1W1HXvL4WABujHXHeTZPSbZQ8C3aUhjd3?usp=sharing

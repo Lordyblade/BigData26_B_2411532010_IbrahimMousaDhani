@@ -11,3 +11,6 @@ https://drive.google.com/drive/folders/1yGZ3u6rSy-X4xuc6y3X-t1SLxklZXqMg?usp=sha
 
 Link Google Drive Praktikum 3 
 https://drive.google.com/drive/folders/1W1HXvL4WABujHXHeTZPSbZQ8C3aUhjd3?usp=sharing
+
+Link Google Drive Praktikum 4 
+https://drive.google.com/drive/folders/1E3XwGoHPf6oMdMiOBKqYPIrIf5v9_vFL?usp=sharing
